@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @P3-538
+- 👀 I’m interested in Full Stack Web development.
+- 🌱 I’m currently learning how to be a dad.
+- 📫 How to reach me ... no please don't, i don't have a lot of free time anymore.
